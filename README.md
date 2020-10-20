@@ -1,3 +1,4 @@
 # Hello-World
 I love Defi, I love the cryptospace. What I dont like is rugpulls and all the scamming that is happening in the Defi crpytospace.That is why I am creating a community based on integrety , honesty and above all else, xxx hardcore. Thats right I am talking about my new project called xxx finance. Catchy dont you think, I do. Look my name is Beck I am a father I am a husband, and I am a crypto warrior , a xx hardcore crypto warrior that is. I will not cheat you, I will not lie to you ad above all else I will try to make you as much money as I can.Trusting xxx finace will be the best decision of your life guarenteed. I cant guarentee a Lambo but I can promise that your money will be here in your wallet not mine.
 Follow me at xxx finance for more info and unpdates.
+Would you trust me , Id trust me, Id trust me so HArd.
